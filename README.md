@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AIphahs
-- 👀 I’m interested in Video games / Software Engineering
+- 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on many project
 - 📫 How to reach me aurelien.ah-sane@efrei.net
