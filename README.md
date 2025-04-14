@@ -10,9 +10,9 @@ You can click the Preview link to take a look at your changes.
 --->
 
 **AURÉLIEN AH-SANE**  
-Étudiant Ingénieur à EFREI Paris – Recherche de stage de fin d’études (Mars 2025)  
+Étudiant Ingénieur à EFREI Paris –
 **Contact :**  
-📧 aurelien.ah-sane@efrei.net | 📱 +262 692 40 98 32  
+📧 aurelien.ah-sane@efrei.net | 📱 +33 6 67 20 38 07 
 🔗 [LinkedIn](https://www.linkedin.com/in/aur%C3%A9lien-ah-sane-394766251/)  
 ---
 
